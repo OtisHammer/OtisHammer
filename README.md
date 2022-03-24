@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OtisHammer
-- 👀 I’m interested in ... noting
+- 👀 I’m interested in ... nothing
 - 🌱 I’m currently learning ... everything
 - 💞️ I’m looking to collaborate on ... nobody
 - 📫 How to reach me ... dont
